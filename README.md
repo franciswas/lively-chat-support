@@ -8,11 +8,11 @@ Lors d'une rénovation, vous devez être capable de partir de l'existant pour re
 ### 1/ Définir vos priorités
 
 Pour rénover votre salle de bain, il convient de savoir quelles sont vos priorités. Si vos installations vieillissent, préférez investir dans un nouveau robinet qui ne goutte pas ou une nouvelle douche.
-Vous privilégiez la décoration ? Gardez votre ancienne baignoire pour pouvoir acheter une jolie vasque.
+Vous privilégiez la décoration ? Gardez votre ancienne baignoire pour pouvoir <a href="https://www.jindoli.fr/12-meuble-salle-de-bain" style="text-decoration:none;color:#000;">acheter un joli meuble de salle de bain Jindoli</a>.
 
 ### 2/ Repenser l'espace
 
-Si votre pièce est trop petite, envisagez de déplacer des meubles voire de détruire une cloison encombrante. Oubliez votre lavabo-double pour n'en prendre qu'un seul ou investissez dans une belle douche, plutôt que de garder votre vieille baignoire. Pour avoir les idées plus claires, dessinez un plan en prenant soigneusement les mesures. Vous pourrez choisir vos nouveaux éléments en connaissance de cause.
+Si votre pièce est trop petite, envisagez de déplacer des meubles voire de détruire une cloison encombrante. Oubliez <a href="https://www.jindoli.fr/18-meuble-salle-de-bain-double-vasque" style="text-decoration:none;color:#000;">votre meuble double vasque</a> pour n'en prendre qu'un seul ou investissez dans une belle douche, plutôt que de garder votre vieille baignoire. Pour avoir les idées plus claires, dessinez un plan en prenant soigneusement les mesures. Vous pourrez choisir vos nouveaux éléments en connaissance de cause.
 
 ### 3/ Établir votre budget
 
@@ -36,7 +36,7 @@ Votre nouvelle salle de bain s'inscrit dans un projet de construction et vous ê
 ### 1/ Préparer son chantier
 
 Avant de vous lancer dans la création de votre future salle de bain, veillez soigneusement à sa planification. Tout d'abord, définissez à qui la salle de bain va être destinée : un couple n'aura pas les mêmes besoins qu'une famille entière par exemple.
-Ensuite, allez glaner ici et là des idées de décoration et de style qui vous intéressent et vous correspondent. Une vasque aperçue en vitrine, un mobilier vu dans un catalogue, etc.
+Ensuite, allez glaner ici et là des idées de décoration et de style qui vous intéressent et vous correspondent. Une vasque aperçue en vitrine, un mobilier vu dans un catalogue <a href="http://www.ikea.com/fr/fr/" style="text-decoration:none;color:#000;">Ikea</a>, <a href="https://www.leroymerlin.fr/" style="text-decoration:none;color:#000;">Leroy Merlin</a>, <a href="http://www.castorama.fr/" style="text-decoration:none;color:#000;">Castorama</a>, <a href="http://www.alinea.fr/" style="text-decoration:none;color:#000;">Alinéa</a>, etc.
 Il est important d'avoir une idée précise du style que vous souhaitez obtenir. De ce choix dépendra l'aménagement de votre salle de bain, ainsi que le choix des éléments qui la composent.
 
 ### 2/ Sélectionner les bons matériaux
@@ -47,7 +47,7 @@ Pour une ambiance orientale, pensez au tadelakt, un enduit de chaux coloré, cir
  
 ### 3/ Coucher son projet sur le papier
 
-Vous possédez tous les éléments nécessaires pour élaborer un plan de votre salle de bain. Sur un papier quadrillé, placez les éléments principaux, que vous aurez dessinés au préalable sur de petits papiers amovibles. Choisissez une disposition qui facilite la circulation et l'utilisation de la pièce. N'omettez pas de laisser de l'espace pour des rangements ou encore pour un grand miroir.
+Vous possédez tous les éléments nécessaires pour élaborer un plan de votre salle de bain. Sur un papier quadrillé, placez les éléments principaux, que vous aurez dessinés au préalable sur de petits papiers amovibles. Choisissez une disposition qui facilite la circulation et l'utilisation de la pièce. N'omettez pas de laisser de l'espace pour des rangements ou encore pour <a href="https://www.jindoli.fr/24-miroir-lumineux-a-led" style="text-decoration:none;color:#000;">un grand miroir led tactile</a>.
 
 ### 4/ Rester raisonnable...
 
@@ -121,6 +121,7 @@ Facile d'entretien grâce à l'émail imperméable, résistante et esthétique, 
 Venu du Maroc, ce matériau a envahi les hammams, spas et autres riads. Signifiant littéralement «caresser», il s'agit d'un enduit à la chaux brillant et imperméable, que l'on peut utiliser en intérieur comme en extérieur.
 De couleurs variées, cet enduit mural à l'origine s'invite désormais sur les baignoires, vasques et lavabos. Très résistant à l'eau et à l'humidité, il est aussi particulièrement esthétique.
 Sa pose est néanmoins minutieuse et nécessite les services d'un spécialiste.
+(<a href="https://fr.wikipedia.org/wiki/Tadelakt" style="text-decoration:none;color:#000;">wikipédia</a>)
 
 # 10 conseils pour aménager votre salle de bain
 
