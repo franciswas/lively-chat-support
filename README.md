@@ -12,7 +12,7 @@ Vous privilégiez la décoration ? Gardez votre ancienne baignoire pour pouvoir 
 
 ### 2/ Repenser l'espace
 
-Si votre pièce est trop petite, envisagez de déplacer des meubles voire de détruire une cloison encombrante. Oubliez <a href="https://www.jindoli.fr/18-meuble-salle-de-bain-double-vasque" style="text-decoration:none;color:#000;">votre meuble double vasque</a> pour n'en prendre qu'un seul ou investissez dans une belle douche, plutôt que de garder votre vieille baignoire. Pour avoir les idées plus claires, dessinez un plan en prenant soigneusement les mesures. Vous pourrez choisir vos nouveaux éléments en connaissance de cause.
+Si votre pièce est trop petite, envisagez de déplacer des meubles voire de détruire une cloison encombrante. Oubliez <a href="https://www.jindoli.fr/18-meuble-salle-de-bain-double-vasque" style="text-decoration:none;color:#000;">votre meuble double vasque</a> pour n'en prendre qu'un seul ou investissez dans une belle douche, plutôt que de garder votre vieille baignoire. Pour avoir les idées plus claires, dessinez un plan en prenant soigneusement les mesures. Vous pourrez choisir vos nouveaux éléments en connaissance de cause. <a href="https://www.plansalledebain.net">Trouver un plan de salle de bain</a>
 
 ### 3/ Établir votre budget
 
